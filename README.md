@@ -1,0 +1,1 @@
+# detik.globalways-status.net
